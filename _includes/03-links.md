@@ -1,1 +1,1 @@
-[My insta] (https://www.instagram.com/minmarini/)
+[Insta](https://www.instagram.com/minmarini/)
